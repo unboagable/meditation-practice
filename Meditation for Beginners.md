@@ -10,7 +10,7 @@ practice
 ok to
 * sleep through
 * get bored and open your eyes
-* feel dump and make a funny face
+* feel dumb and make a funny face
 * try again in privacy, in a shower, in your car, for a date
 
 ## Novice
