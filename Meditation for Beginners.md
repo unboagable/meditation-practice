@@ -27,3 +27,19 @@ health check
 * try to feel out body parts like a blood pulse
 * try starting from your head or music
 * try empathizing with a painful body part
+
+## Intermediate
+
+yoga
+* try meditating with movement
+
+explore
+* what can you hear?
+* what distance
+* with distractions
+* what can you sense?
+* engaging different body parts in empathy
+
+explore memories
+* process painful or joyful times
+* learn from an important moment
