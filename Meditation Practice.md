@@ -42,4 +42,4 @@
 
 ## Other Practice
 
-* (wim hoff meditation)[https://www.wimhofmethod.com/meditation-exercises#:~:text=he%20Wim%20Hof%20method%20uses,safe%20environment%20without%20any%20distractions.] (30 inhalation/exhalation-> 1 min hold your breath->cold shower)
+* [wim hoff meditation](https://www.wimhofmethod.com/meditation-exercises#:~:text=he%20Wim%20Hof%20method%20uses,safe%20environment%20without%20any%20distractions.) (30 inhalation/exhalation-> 1 min hold your breath->cold shower)
